@@ -1,0 +1,1 @@
+### Gerador de conteudo automatico para o tiktok
